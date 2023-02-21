@@ -5,4 +5,9 @@
 
 olá sou o daniel duarte sou iniciando a mais de um mês  no momento estou estudando e me capacitando para capacita  a uma vaga de trabalho e todo meu projeto pessoal vou posta aqui para vocês  acompanha meu desenvolvimento
 
+💻danielduarte376@gmail.com
+@danielduart
+daniel duarte
+📚 estudando html css js
+
 -->
